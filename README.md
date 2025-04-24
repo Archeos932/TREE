@@ -68,7 +68,7 @@ Prochaines étapes :
 Vous partagez la vision ? Vous êtes développeur, cryptographe, philosophe ou designer système ?
 **Rejoignez le mouvement TREE.**
 
-Contact : [À définir]  
+Contact : mvilbouxduplessis@gmail.com  
 Discord / Matrix / Forum communautaire à venir.
 
 ---
